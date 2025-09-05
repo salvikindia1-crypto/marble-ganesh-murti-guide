@@ -74,7 +74,7 @@ Jaipur and Makrana are world-famous for marble artistry. Makrana marble, also us
 
 For devotees looking to bring home a handcrafted idol, you can explore a wide range of designs and sizes here:  
 
-👉 [Marble Ganesh Ji Statue Collection](https://www.salvik.in/collections/marble-ganesh-ji-statue)  
+ [Marble Ganesh Ji Statue Collection](https://www.salvik.in/collections/marble-ganesh-ji-statue)  
 
 ---
 
